@@ -1,2 +1,0 @@
-# alforbeginners
-Al Beginner Series
